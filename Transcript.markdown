@@ -1,22 +1,8 @@
-*Transcript of <http://www.youtube.com/watch?v=VShmtsLhkQg>.*
-
-*Full runtime: approximately 36m09s*
-
-*Other versions of this video exist with a slightly longer run-time, but I believe the difference is primarily intro and outro video banners from Video Arts, the company which originally produced it.*
-
-*In the version that this transcript comes from, John Cleese begins speaking at approximately 00:04.*
-
-*Comments in { } are _editorial_, intended to aid clarity of the written version.*
-
-*Comments in ( ) are _original_, except for timestamps which are meant as a guide for those looking for a particular point in the video.*
-
-*All headings are editorial, intended to aid in finding specific parts of the talk, as well as breaking up an otherwise lengthy block of text. Bold/italics are intended to reflect tone of voice or when an especially important point was being made, but this is obviously somewhat subjective.*
-
------
+<iframe width="420" height="315" src="http://www.youtube.com/embed/VShmtsLhkQg" frameborder="0" allowfullscreen></iframe>
 
 You know, when Video Arts asked me if I'd like to talk about creativity I said "no problem!" No problem! Because *telling* people how to be creative is *easy*, it's only being it that's difficult.
 
-I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative. 
+I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative.
 
 What is more, a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
 
@@ -48,7 +34,7 @@ It is, for example, (and this may surprise you) absolutely unrelated to IQ (prov
 
 So in what way were they different?
 
-MacKinnon showed that the most creative had simply acquired a facility for getting themselves into a particular mood -- "a way of operating" -- which allowed their natural creativity to function. 
+MacKinnon showed that the most creative had simply acquired a facility for getting themselves into a particular mood -- "a way of operating" -- which allowed their natural creativity to function.
 
 In fact, MacKinnon described this particular facility as an ability to *play*. (5:11)
 
@@ -114,7 +100,7 @@ For example, if you decide to leap a ravine, the moment just before take-off is 
 
 Humor is a natural concomitant in the open mode, but it's a luxury in the closed {mode}.
 
-No, once we've taken a decision we should narrow our focus while we're implementing it, and then after it's been carried out we should once again switch back to the open mode to review the feedback rising from our action, in order to decide whether the course that we have taken is successful, or whether we should continue with the next stage of our plan.  Whether we should create an alternative plan to correct any error we perceive. 
+No, once we've taken a decision we should narrow our focus while we're implementing it, and then after it's been carried out we should once again switch back to the open mode to review the feedback rising from our action, in order to decide whether the course that we have taken is successful, or whether we should continue with the next stage of our plan.  Whether we should create an alternative plan to correct any error we perceive.
 
 And then back into the closed mode to implement that next stage, and so on.
 
@@ -136,13 +122,13 @@ So, as I say, **creativity is not possible in the closed mode.** (11:51)
 
 Oh, there is one, just one, other thing that I can say about creativity.
 
-There are certain *conditions* which do make it more *likely* that you'll get into the open mode, and that something creative will occur.  
+There are certain *conditions* which do make it more *likely* that you'll get into the open mode, and that something creative will occur.
 
-*More* likely… you can't guarantee anything will occur. You might sit around for hours as I did last Tuesday, and *nothing*. 
+*More* likely… you can't guarantee anything will occur. You might sit around for hours as I did last Tuesday, and *nothing*.
 
-Zilch. 
+Zilch.
 
-Bupkis. 
+Bupkis.
 
 Not a sausage.
 
@@ -160,7 +146,7 @@ Sorry, my mind was wondering. I'm getting into the open mode too quickly. Instea
 
 Let's take *space* first: you can't become playful and therefore creative if you're under your usual pressures, because to cope with them you've got to be in the closed mode.
 
-So you have to create some space for yourself *away* from those demands. And that means sealing yourself off. 
+So you have to create some space for yourself *away* from those demands. And that means sealing yourself off.
 
 You must make a quiet space for yourself where you will be undisturbed.
 
@@ -220,7 +206,7 @@ Well, the most creative people have learned to tolerate that discomfort for much
 
 Now the people I find it hardest to be creative with are people who need *all the time* to project an image of themselves as decisive.
 
- And who feel that to create this image they need to decide everything very quickly and with a great show of confidence. 
+ And who feel that to create this image they need to decide everything very quickly and with a great show of confidence.
 
 Well, this behavior I suggest sincerely, is the most effective way of **strangling creativity at birth.**
 
