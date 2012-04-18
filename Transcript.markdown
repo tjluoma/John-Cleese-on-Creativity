@@ -16,42 +16,41 @@
 
 You know, when Video Arts asked me if I'd like to talk about creativity I said "no problem!" No problem! Because *telling* people how to be creative is *easy*, it's only being it that's difficult.
 
-And I knew it would be particularly easy for me because I've the last 25 years watching how various creative people produce their stuff.
+I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative. 
 
-And being fascinating to see if I could figure out what makes folk, including me, more creative. what is more a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
+What is more, a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
 
-The prospect of settling down for quite serious study of creativity for the purpose of tonight's gossip was delightful and having spent several weeks on it I can state categorically that what I have to tell you tonight about how you can all become more creative is a complete waste of time.
+The prospect of settling down for quite serious study of creativity for the purpose of tonight's gossip was delightful. Having spent several weeks on it, I can state categorically that what I have to tell you tonight about how you can all become more creative is a complete waste of time.
 
 So I think it would be much better if I just told jokes instead. (1:30)
 
-> You know the lightbulb jokes? How many Poles does it take to screw in a lightbulb? One to hold the bulb, 4 to turn the table. How many folksingers does it take to change a lightbulb? Answer: five, one to change the bulb and four to sing about how much better the old one was. How many socialists does it take to change a lightbulb? Answer: We're not going to change it, we think it works. How many creative art--
+> You know the lightbulb jokes? How many Poles does it take to screw in a lightbulb? One to hold the bulb, four to turn the table. How many folksingers does it take to change a lightbulb? Answer: five, one to change the bulb and four to sing about how much better the old one was. How many socialists does it take to change a lightbulb? Answer: We're not going to change it, we think it works. How many creative art--
 
 (2:03) The reason why it is futile for me to talk about creativity is that it simply cannot be explained, it's like Mozart's music or Van Gogh's painting or Saddam Hussein's propaganda. It is literally inexplicable.
 
-Freud who analyzed practically everything else repeatedly denied that psychoanalysis could shed any light whatsoever on the mysteries of creativity. (2:19)
+Freud, who analyzed practically everything else, repeatedly denied that psychoanalysis could shed any light whatsoever on the mysteries of creativity. (2:19)
 
-And Brian Bates wrote to me recently "most of the best research on creativity was done in the 60s and 70s with a quite dramatic drop-off in quantity after then," largely, I suspect because researchers began to feel that they had reached the limits of what science could discover about it. (2:49)
+And Brian Bates wrote to me recently "Most of the best research on creativity was done in the 60s and 70s with a quite dramatic drop-off in quantity after then," largely, I suspect because researchers began to feel that they had reached the limits of what science could discover about it. (2:49)
 
-In fact the only thing from the research that I could tell you about how to be creative is the sort of childhood that you should have had, which is of limited help to you at this point in your lives. (3:03)
+In fact, the only thing from the research that I could tell you about how to be creative is the sort of *childhood* that you should have had, which is of limited help to you at this point in your lives. (3:03)
 
-However there is one *negative* thing that I can say, and it's negative because it is easier to say what creativity *isn't*.
+However there is one *negative* thing that I can say, and it's "negative" because it is easier to say what creativity *isn't*.
 
 > A bit like the sculptor who when asked how he had sculpted a very fine elephant, explained that he'd taken a big block of marble and then knocked away all the bits that didn't look like an elephant. (3:28)
 
-Now here's the negative thing: **Creativity is not a talent** It is *not* a talent, it is a *way of operating*. (3:40)
+Now here's the negative thing: **Creativity is not a talent.** It is *not* a talent, it is a *way of operating*. (3:40)
 
 > So how many actors does it take to screw in a lightbulb? Answer: thousands. Only one to do it but thousands to say "I could have done that." How many Jewish mothers does it take to screw in a lightbulb? Answer: Don't mind me, I'll just sit here in the dark, nobody cares about… *{mumble}* How many *surgeons* --
 
 (4:07) You see when I say "a way of operating" what I mean is this: creativity is *not* an ability that you either have or do not have.
 
-It is, for example, (and this may surprise you) absolutely unrelated to IQ (provided that you are intelligent above a certain minimal level that is ) but MacKinnon showed in an investigating scientists, architects, engineers, and writers that those regarded by their peers as most creative were in no way whatsoever different in IQ from their less creative colleagues. (4:42)
+It is, for example, (and this may surprise you) absolutely unrelated to IQ (provided that you are intelligent above a certain minimal level that is) but MacKinnon showed in investigating scientists, architects, engineers, and writers that those regarded by their peers as "most creative" were in no way whatsoever different in IQ from their less creative colleagues. (4:42)
 
 So in what way were they different?
 
-MacKinnon showed that the most creative had simply acquired a facility for getting themselves into a particular mood -- "a way of operating" --
-which allowed their natural creativity to function. (5:04)
+MacKinnon showed that the most creative had simply acquired a facility for getting themselves into a particular mood -- "a way of operating" -- which allowed their natural creativity to function. 
 
-MacKinnon described this particular facility as an ability to *play*. (5:11)
+In fact, MacKinnon described this particular facility as an ability to *play*. (5:11)
 
 Indeed he described the most creative (when in this mood) as being *childlike*. For they were able to play with ideas… to explore them… not for any immediate *practical* purpose but *just* for enjoyment. Play for its own sake. (5:29)
 
@@ -63,34 +62,33 @@ We've become *fascinated* by the fact that we can usually describe the way in wh
 
 So what i can just add now is that creativity is *not* possible in the closed mode. (6:10)
 
-> Ok, so how many American network TV executives does it take to screw in a lightbulb? Answer: Does it have to be a lightbulb? How many doorke--
+> Ok, so how many American network TV executives does it take to screw in a lightbulb? Answer: Does it *have* to be a lightbulb? How many doorke--
 
 ## Closed Mode (6:27)
 
 Let me explain a little. By the "closed mode" I mean the mode that we are in *most of the time* when {we are} at work.
 
-We have inside us a feeling that there's lots to be done
-and we have to get on with it if we're going to get through it all.
-It's an active (probably *slightly* anxious) mode,
-although the anxiety can be exiting and pleasurable.
+We have inside us a feeling that there's lots to be done and we have to get on with it if we're going to get through it all.
+
+It's an active (probably *slightly* anxious) mode, although the anxiety can be exiting and pleasurable.
 
 It's a mode which we're probably a little impatient, if only with ourselves.
 
 It has a *little* tension in it, not much humor.
 
-It's a mode in which we're very purposeful, and it's a mode in which we *can* get very stressed and even a bit manic, but *not* creative.
+It's a mode in which we're very *purposeful*, and it's a mode in which we *can* get very stressed and even a bit manic, but *not* creative.
 
 ## Open Mode (7:10)
 
 By contrast, the open mode, is relaxed… expansive… less purposeful mode… in which we're probably more contemplative, more inclined to humor (which always accompanies a wider perspective) and, consequently, more playful.
 
-It's a mood in which *curiosity for its own sake* can operate because we're not under pressure to get a specific thing done quickly. We can play, and that is what allows our natural creativity to surface.
+It's a mood in which *curiosity for its own sake* can operate because we're not under pressure to get a specific thing done quickly. We can *play*, and that is what allows our natural creativity to surface.
 
-Let me give you and example of what i mean
+### Example of Open vs Closed Mode: Alexander Fleming (7:48)
 
-### Example of Open vs Closed Mode: Alexander Fleming (7:51)
+Let me give you and example of what I mean.
 
-When Alexander Fleming<sup id="Fleming"><a href="#fn-5">5</a></sup> had the thought that led to the discovery of penicillin he must have been in the *open mode*.
+When Alexander Fleming<sup id="Fleming"><a href="#fn-5">5</a></sup> had the thought that led to the discovery of penicillin, he must have been in the *open mode*.
 
 The previous day, he'd arranged a number of dishes to that culture would grow upon them.
 
@@ -106,21 +104,21 @@ Now in the *closed mode* an uncultured dish is an irrelevance. In the open mode,
 
 Now, one more example: one of Alfred Hitchcock's regular co-writers has described working with him on screenplays.
 
-He says, "When we came up against a block {and} our discussions became very heated and intense, Hitchcock would suddenly stop and tell a story that had nothing to do with the work at hand. At first, I was almost outraged, and then I discovered that he did this intentionally. He mistrusted working under pressure. He would say "We're pressing, we're pressing, we're working too hard. Relax, it will come." And, says the writer, of course it finally always did.
+He says, "When we came up against a block and our discussions became very heated and intense, Hitchcock would suddenly stop and tell a story that had nothing to do with the work at hand. At first, I was almost outraged, and then I discovered that he did this intentionally. He *mistrusted* working under pressure. He would say "We're pressing, we're pressing, we're working too hard. Relax, it will come." And, says the writer, of course it finally always did.
 
 ## We need both modes (9:33)
 
 But let me make one thing quite clear: we need to be in the open mode when we're pondering a problem *but* once we come up with a solution, we must then switch to the closed mode to implement it. Because once we've made a decision, we are efficient only if we go through with it decisively, undistracted by doubts about its correctness.
 
-For example, if you decide to leap a ravine, the moment just before take-off is a bad time to start reviewing alternative strategies. When you're attacking a machine gun post you should not make a particular effort to see the funny side of what you are doing.
+For example, if you decide to leap a ravine, the moment just before take-off is a bad time to start reviewing alternative strategies. When you're attacking a machine-gun post you should not make a particular effort to see the funny side of what you are doing.
 
 Humor is a natural concomitant in the open mode, but it's a luxury in the closed {mode}.
 
-No, once we've taken a decision we should narrow our focus while we're implementing it and then after it's been carried out we should once again switch back to the open mode to review the feedback rising from our action, in order to decide whether the course that we have taken is successful or whether we should continue with the next stage of our plan.
+No, once we've taken a decision we should narrow our focus while we're implementing it, and then after it's been carried out we should once again switch back to the open mode to review the feedback rising from our action, in order to decide whether the course that we have taken is successful, or whether we should continue with the next stage of our plan.  Whether we should create an alternative plan to correct any error we perceive. 
 
-Whether we should create an alternative plan to correct any error we perceive. And then back into the closed mode to implement that next stage, and so on.
+And then back into the closed mode to implement that next stage, and so on.
 
-In other words to be at our most efficient we need to be able to switch backwards and forwards between the two modes.
+In other words, to be at our *most efficient* we need to be able to switch backwards and forwards between the two modes.
 
 ## We often get stuck in one mode (11:05)
 
@@ -132,13 +130,21 @@ This is particularly true, for example, of politicians. The main complaint about
 
 So, as I say, **creativity is not possible in the closed mode.** (11:51)
 
-> And that's it. Well… 20 minutes to go… Well, how many women's libbers does it take to change a lightbulb? Answer: 37, one to screw it in, and 36 to make a documentary about it. How many psychiatrists does it take to change a lightbulb? The answer: only one, but the lightbulb has really got to want to change.
+> And that's it. Well… 20 minutes to go… So, how many women's libbers does it take to change a lightbulb? Answer: 37, one to screw it in, and 36 to make a documentary about it. How many psychiatrists does it take to change a lightbulb? The answer: only one, but the lightbulb has really got to want to change.
 
 ## 5 conditions which are conducive to creativity (12:18)
 
-There is one, just one, other thing that I can say about creativity.
+Oh, there is one, just one, other thing that I can say about creativity.
 
-There are certain conditions which do make it more likely that you'll get into the open mode, and that something creative will occur.  *More* likely, you can't guarantee anything will occur. You might sit around for hours as I did last Tuesday, and *nothing*. Zilch. Bupkis. Not a sausage.
+There are certain *conditions* which do make it more *likely* that you'll get into the open mode, and that something creative will occur.  
+
+*More* likely… you can't guarantee anything will occur. You might sit around for hours as I did last Tuesday, and *nothing*. 
+
+Zilch. 
+
+Bupkis. 
+
+Not a sausage.
 
 Nevertheless I can at least tell you how to get yourselves into the open mode. You need five things:
 
@@ -152,10 +158,11 @@ Sorry, my mind was wondering. I'm getting into the open mode too quickly. Instea
 
 ### First: Space (13:20)
 
-Let's take Space first: you can't become playful and therefore creative if you're under your usual pressures because to cope with them you've got to be in the closed mode.
+Let's take *space* first: you can't become playful and therefore creative if you're under your usual pressures, because to cope with them you've got to be in the closed mode.
 
-So you have to create some space for yourself away from those demands. And that means sealing yourself off. You must make a quiet space for yourself where you will be undisturbed.
+So you have to create some space for yourself *away* from those demands. And that means sealing yourself off. 
 
+You must make a quiet space for yourself where you will be undisturbed.
 
 ### Second: Time (13:48)
 
@@ -163,29 +170,27 @@ Next: Time. It's not enough to create space, you have to create your space for *
 
 And it's only by having a specific moment when your space starts and an equally specific moment when your space *stops* that you can seal yourself off from the every day closed mode in which we all habitually operate.
 
-And I'd never realized how vital this way until I read a historical study of play by a Dutch historian called Johan Huizinga<sup id="Huizinga"><a href="#fn-6">6</a></sup> and in it he says "Play is distinct from ordinary life, both as to locality and duration. This is its main characteristic: its secludedness. Its limitedness. Play begins and then (at a certain moment) it is over. Otherwise, it's not play." (14:55)
+And I'd never realized how vital this was until I read a historical study of play by a Dutch historian called Johan Huizinga<sup id="Huizinga"><a href="#fn-6">6</a></sup> and in it he says "Play is distinct from ordinary life, both as to locality and duration. This is its main characteristic: its secludedness, its limitedness. Play begins and then (at a certain moment) it is over. Otherwise, it's not play." (14:55)
 
-So combining the first two factors we create an oasis of quiet for ourselves by setting the boundaries of space and of time.
+So combining the first two factors we create an "oasis of quiet" for ourselves by setting the boundaries of space and of time.
 
 Now creativity can happen, because play is possible when we are separate from everyday life.
 
 #### Distractions (15:20)
 
-So, you've arranged to take no calls, you've closed your door, you've sat down somewhere comfortable, take a couple of deep breaths and if you're anything like me, after you've pondered some problem which you want to turn into an opportunity for about 90 seconds  you find yourself thinking "Oh I forgot I've got to call Jim… oh, and I must tell Tina that I need the report on Wednesday and not Thursday which means I must move my lunch with Joe and *Damn!* I haven't called St. Paul's about getting Joe's daughter an interview and I must pop out this afternoon to get Will's birthday present and those plants need watering and none of my pencils are sharpened and *Right!* I've got too much to do, so I'm going to start by sorting out my paper clips and then I shall make 27 phone calls and I'll do some thinking tomorrow when I've got everything out of the way."
+So, you've arranged to take no calls, you've closed your door, you've sat down somewhere comfortable, take a couple of deep breaths and if you're anything like me, after you've pondered some problem that you want to turn into an opportunity for about 90 seconds, you find yourself thinking "Oh I forgot I've got to call Jim… oh, and I must tell Tina that I need the report on Wednesday and not Thursday which means I must move my lunch with Joe and *Damn!* I haven't called St. Paul's about getting Joe's daughter an interview and I must pop out this afternoon to get Will's birthday present and those plants need watering and none of my pencils are sharpened and *Right!* I've got too much to do, so I'm going to start by sorting out my paper clips and then I shall make 27 phone calls and I'll do some thinking tomorrow when I've got everything out of the way."
 
-Because, as we all know, **it's easier to do trivial things that are urgent than it is to do important things that are not urgent, like thinking.**
+Because, as we all know, it's easier to do *trivial* things that are *urgent* than it is to do *important* things that are *not urgent*, like *thinking*.
 
 And it's also easier to do little things we know we can do, than to start on big things that we're not so sure about.
 
-So when I say create an oasis of quiet know that when you have your mind will pretty soon start racing again. But you're not going to take that very seriously, you just sit there (for a bit) tolerating the racing and the slight anxiety that comes with that, and after a time your mind will quiet down again.
+So when I say create an oasis of quiet know that when you have, your mind will pretty soon start racing again. But you're not going to take that very seriously, you just sit there (for a bit) tolerating the racing and the slight anxiety that comes with that, and after a time your mind will quiet down again.
 
 #### Set aside about 90 minutes, not all morning (16:53)
 
-Now, because it takes some time for your mind to quiet down it's absolutely no use arranging a "space/time oasis" lasting 30 minutes.
+Now, because it takes some time for your mind to quiet down it's absolutely no use arranging a "space/time oasis" lasting 30 minutes, because just as you're getting quieter and getting into the open mode you have to stop and that is very deeply frustrating. So you must allow yourself a good chunk of time. I'd suggest about an hour and a half. Then after you've gotten to the open mode, you'll have about an hour left for something to happen, if you're lucky.
 
-Because just as you're getting quieter and getting into the open mode you have to stop and that is very deeply frustrating. So you must allow yourself a good chunk of time. I suggest about an hour and a half. Then after you've gotten to the open mode, you'll have about an hour left for something to happen, if you're lucky.
-
-But don't put a whole morning aside. My experience is that after about an hour and a half you need a break. So it's far better to do an hour and a half now and then an hour and a half next Thursday and maybe an hour and a half the week after that, than to fix one four-and-a-half hour session now.
+But don't put a whole morning aside. My experience is that after about an hour-and-a-half you need a break. So it's far better to do an hour-and-a-half now and then an hour-and-a-half next Thursday and maybe an hour-and-a-half the week after that, than to fix one four-and-a-half hour session now.
 
 There's another reason for that, and that's factor number three: time.
 
@@ -199,7 +204,7 @@ Why do you still need time?
 
 Well, let me tell you a story. I was always intrigued that one of my Monty Python colleagues who seemed to be (to me) more *talented* than I was {but} did never produce scripts as original as mine. And I watched for some time and then I began to see why. If he was faced with a problem, and fairly soon saw a solution, he was inclined to take it. Even though (I think) he knew the solution was not very original.
 
-Whereas if I was in the same situation, although I was sorely tempted to take the easy way out, and finish by 5 o'clock, I just couldn't. I'd sit there with the problem for another hour and a quarter, and by sticking at it would, in the end, almost always come up with something more original.
+Whereas if I was in the same situation, although I was sorely tempted to take the easy way out, and finish by 5 o'clock, I just couldn't. I'd sit there with the problem for another hour-and-a-quarter, and by sticking at it would, in the end, almost always come up with something more original.
 
 It was that simple.
 
@@ -207,13 +212,17 @@ My work was more creative than his simply because I was prepared to stick with t
 
 So imagine my excitement when I found that this was *exactly* what MacKinnon found in his research. He discovered that the most creative professionals always played with a problem for much longer before they tried to resolve it, because they were prepared to *tolerate* that slight discomfort and anxiety that we all experience when we haven't solved a problem.
 
-You know I mean, if we have a problem and we need to solve it, until we do, we feel (inside of us) a kind of internal agitation, a tension, or an uncertainty that makes us just plain uncomfortable. And we want to get rid of that discomfort. So, in order to do so, we take a decision. Not because we're sure it's the best decision, but because *taking it* will make us feel better.
+You know I mean, if we have a problem and we need to solve it, until we do, we feel (inside us) a kind of internal agitation, a tension, or an uncertainty that makes us just plain uncomfortable. And we want to get rid of that discomfort. So, in order to do so, we take a decision. Not because we're sure it's the best decision, but because *taking it* will make us feel better.
 
 Well, the most creative people have learned to tolerate that discomfort for much longer. And so, just because they put in more pondering time, their solutions are more creative.
 
 #### Beware "The Deciders" (20:11)
 
-Now the people I find it hardest to be creative with are people who need *all the time* to project an image of themselves as decisive. And who feel that to create this image they need to decide everything very quickly and with a great show of confidence. Well, this behavior I suggest sincerely, is the most effective way of **strangling creativity at birth.**
+Now the people I find it hardest to be creative with are people who need *all the time* to project an image of themselves as decisive.
+
+ And who feel that to create this image they need to decide everything very quickly and with a great show of confidence. 
+
+Well, this behavior I suggest sincerely, is the most effective way of **strangling creativity at birth.**
 
 #### Beware also of not making any decisions (20:40)
 
@@ -223,7 +232,7 @@ What I am suggesting to you is that before you take a decision, you should alway
 
 And if, while you're pondering, somebody accuses you of indecision say, "Look, Babycakes, I don't have to decide 'til Tuesday, and I'm not chickening out of my creative discomfort by taking a *snap* decision before then, **that's too easy**."
 
-So, to summarize: the third factor that facilitates creativity is time, giving your mind as long as possible to come up with something original.
+So, to summarize: the third factor that facilitates creativity is *time*, giving your mind as long as possible to come up with something original.
 
 ### Fourth: Confidence (21:47)
 
@@ -237,7 +246,7 @@ The very essence of playfulness is an openness to *anything* that may happen. Th
 
 Well, you're either free to play, or you're not.
 
-As Alan Watts puts it, "you can't be spontaneous *within reason*."
+As Alan Watts puts it, you can't be spontaneous *within reason*.
 
 So you've got risk saying things that are *silly* and *illogical* and *wrong*, and the best way to get the confidence to do that is to know that while you're being creative, nothing is wrong. There's no such thing as a mistake, and any *drivel* may lead to the break-through.
 
@@ -247,11 +256,11 @@ And now, the last factor, the fifth: humor.
 
 Well, I happen to think the main evolutionary significance of humor is that it gets us from the *closed mode* to the *open mode* quicker than anything else.
 
-I think we all know that laughter brings relaxation, and that humor makes us playful yet how many times important discussions been held where really original and creative ideas were desperately needed to solve important problems, but where humor was taboo because the subject being discussed was {air quotes} "so serious"?
+I think we all know that laughter brings relaxation, and that humor makes us playful, yet how many times important discussions been held where really original and creative ideas were desperately needed to solve important problems, but where humor was taboo because the subject being discussed was *{air quotes}* "so serious"?
 
 This attitude seems to me to stem from a very basic misunderstanding of the difference between 'serious' and 'solemn'.
 
-Now I suggest to you that a group of us could be sitting around after dinner, discussing matters that were *extremely* serious like the education of our children, or our marriages, or the meaning of life (and I'm not talking about the film), and we could be laughing, and that would *not* make what we were discussing one bit less serious.
+Now I suggest to you that a group of us could be sitting around after dinner, discussing matters that were *extremely* serious like the education of our children, or our marriages, or the meaning of life (and I'm not talking about the film), and we could be laughing, and that would *not* make what we were discussing one bit less *serious*.
 
 Solemnity, on the other hand… I don't know what it's for. I mean, what is the *point* of it? The two most beautiful memorial services that I've ever attended both had a lot of humor, and it somehow freed us all, and made the services inspiring and cathartic.
 
@@ -355,13 +364,13 @@ Because subversive is, of course, what humor will be in your setup, as it's the 
 
 So let's get this clear: blame humor for the resistance that your way of working creates. Then you don't have to blame your way of working. This is important. And I mean that solemnly. Your dignity is no laughing matter.
 
-**Second:** keeping ourselves feeling irreplaceable involves cutting everybody else down to size so don't miss an opportunity to undermine your employees' confidence.
+**Second:** keeping ourselves feeling irreplaceable involves cutting everybody else down to size, so don't miss an opportunity to undermine your employees' confidence.
 
 A perfect opportunity comes when you're reviewing work that they've done. Use your authority to zero in *immediately* on all the things you can find wrong. Never *never* balance the negatives with positives, only criticize, just as your school teachers did.
 
 Always remember: praise makes people *uppity*.
 
-**Third:** Demand that people should always be actively *doing things*. If you catch anyone pondering, accuse them of laziness and/or indecision. This is to starve employees of thinking time because that leads to creativity and insurrection.  So demand *urgency* at all times, use lots of fighting talk and war analogies, and establish a permanent atmosphere of stress, of breathless anxiety, and crisis.
+**Third:** Demand that people should always be actively *doing things*. If you catch anyone *pondering*, accuse them of laziness and/or indecision. This is to starve employees of thinking time because that leads to creativity and insurrection.  So demand *urgency* at all times, use lots of fighting talk and war analogies, and establish a permanent atmosphere of stress, of breathless anxiety, and crisis.
 
 In a phrase: **keep that mode closed.**
 
