@@ -1,5 +1,7 @@
 <iframe width="420" height="315" src="http://www.youtube.com/embed/VShmtsLhkQg" frameborder="0" allowfullscreen></iframe>
 
+<object width="420" height="315"><param name="movie" value="http://www.youtube.com/v/VShmtsLhkQg?version=3&amp;hl=en_US&amp;rel=0"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/VShmtsLhkQg?version=3&amp;hl=en_US&amp;rel=0" type="application/x-shockwave-flash" width="420" height="315" allowscriptaccess="always" allowfullscreen="true"></embed></object>
+
 You know, when Video Arts asked me if I'd like to talk about creativity I said "no problem!" No problem! Because *telling* people how to be creative is *easy*, it's only being it that's difficult.
 
 I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative.
