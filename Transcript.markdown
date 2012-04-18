@@ -383,7 +383,7 @@ More information can be found at <a href="http://www.brianbates.co.uk/">www.bria
 </li>
 
 <li id="fn-3">
-<p> <a href="http://www.guardian.co.uk/news/2000/sep/28/guardianobituaries.booksonhealth/print">Augustus Charles Robin Skynner,, born August 16 1922; died September 24 2000</a>.<a title="Return to article" href="#Skynner">↩</a></p>
+<p> <a href="http://www.guardian.co.uk/news/2000/sep/28/guardianobituaries.booksonhealth/print">Augustus Charles Robin Skynner</a>, born August 16 1922; died September 24 2000.<a title="Return to article" href="#Skynner">↩</a></p>
 </li>
 
 <li id="fn-4">
