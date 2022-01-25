@@ -4,7 +4,7 @@ You know, when Video Arts asked me if I'd like to talk about creativity I said "
 
 I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative.
 
-What is more, a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
+What is more, a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkeley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
 
 The prospect of settling down for quite serious study of creativity for the purpose of tonight's gossip was delightful. Having spent several weeks on it, I can state categorically that what I have to tell you tonight about how you can all become more creative is a complete waste of time.
 
