@@ -72,7 +72,7 @@ It's a mood in which *curiosity for its own sake* can operate because we're not 
 
 ### Example of Open vs Closed Mode: Alexander Fleming (7:48)
 
-Let me give you and example of what I mean.
+Let me give you an example of what I mean.
 
 When Alexander Fleming<sup id="Fleming"><a href="#fn-5">5</a></sup> had the thought that led to the discovery of penicillin, he must have been in the *open mode*.
 
