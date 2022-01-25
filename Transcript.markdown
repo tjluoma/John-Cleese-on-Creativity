@@ -46,7 +46,7 @@ I'm working at the moment with Dr. Robin Skynner<sup id="Skynner"><a href="#fn-3
 
 We've become *fascinated* by the fact that we can usually describe the way in which people function at work in terms of two modes: open and closed.
 
-So what i can just add now is that creativity is *not* possible in the closed mode. (6:10)
+So what I can just add now is that creativity is *not* possible in the closed mode. (6:10)
 
 > Ok, so how many American network TV executives does it take to screw in a lightbulb? Answer: Does it *have* to be a lightbulb? How many doorke--
 
