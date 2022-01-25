@@ -274,7 +274,7 @@ You'll daydream, of course, but you just keep bringing your mind back, just like
 
 ### Play with people you trust (27:17)
 
-Oh! One thing! Looking at you all reminds me, I think it's easy to be creative if you've got other people to play with.
+Oh! One thing! Looking at you all reminds me, I think it's easier to be creative if you've got other people to play with.
 
 I always find that if two (or more) of us throw ideas backwards and forwards I get to more interesting and original places than I could have ever have gotten to on my own. But there is a danger, a real danger, if there's *one* person around you who makes you feel defensive, you lose the confidence to play, and it's goodbye creativity.
 
