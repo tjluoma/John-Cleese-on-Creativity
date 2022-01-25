@@ -362,7 +362,7 @@ In a phrase: **keep that mode closed.**
 
 In this way we *no-nonsense types* can be sure that the tiny, tiny, *microscopic* quantity of creativity in our organization will all be *ours!*
 
-*But!* Let your vigilance slip for one moment, and you could find yourself surrounded by happy, enthusiastic, and creative people whom you might never be able to completely control ever again!
+*But!* Let your vigilance slip for one moment, and you could find yourself surrounded by happy, enthusiastic, and creative people whom you might never be able completely to control ever again!
 
 So be careful.
 
