@@ -2,7 +2,7 @@
 
 You know, when Video Arts asked me if I'd like to talk about creativity I said "no problem!" No problem! Because *telling* people how to be creative is *easy*, it's only being it that's difficult.
 
-I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinating to see if I could figure out what makes folk, including me, more creative.
+I knew it would be particularly easy for me because I've spent the last 25 years watching how various creative people produce their stuff, and being fascinated to see if I could figure out what makes folk, including me, more creative.
 
 What is more, a couple of years ago I got very excited because a friend of mine who runs the psychology department at Sussex University, Brian Bates,<sup id="Bates"><a href="#fn-1">1</a></sup> showed me some research on creativity done at Berkeley in the 70s by a brilliant psychologist called Donald MacKinnon<sup id="MacKinnon"><a href="#fn-2">2</a></sup> which seemed to confirm in the most impressively scientific way all the vague observations and intuitions that I'd had over the years.
 
