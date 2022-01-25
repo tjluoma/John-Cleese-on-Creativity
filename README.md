@@ -1,6 +1,6 @@
 Transcript of <https://www.youtube.com/watch?v=Pb5oIIPO62g> which is uploaded by Video Arts, the copyright holder, so it should stay up.
 
-Full runtime: approximately 37 minutes, including about a minute of preamble (the only important part, to me, is that this was recorded in January of 1991.
+Full runtime: approximately 37 minutes, including about a minute of preamble - the only important part, to me, is that this was recorded in January of 1991.
 
 Comments in { } are _editorial_, intended to aid clarity of the written version.
 
