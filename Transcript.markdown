@@ -1,4 +1,5 @@
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Pb5oIIPO62g?start=60" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+_(Editor's note: the video can be found at <https://youtu.be/Pb5oIIPO62g>.)_
 
 You know, when Video Arts asked me if I’d like to talk about creativity I said “No problem! No problem!” Because *telling* people how to be creative is *easy*, it’s only being it that's difficult.
 
@@ -399,8 +400,9 @@ More information can be found at <a href="http://www.brianbates.co.uk/">www.bria
 </li>
 
 <li id="fn-7">
-<p>More information at <a href="http://www.edwdebono.com/">edwdebono.com</a>. The book, <a href="http://www.amazon.com/Po-Beyond-Edward-De-Bono/dp/0140137823">Po: Beyond Yes and No</a>,
-appears to be out of print.<a title="Return to article" href="#debono">↩</a></p>
+<p>
+
+<a href=’https://en.wikipedia.org/wiki/Edward_de_Bono’>Edward de Bono (19 May 1933 – 9 June 2021)</a>. More information at <a href="https://www.debono.com">debono.com</a>. The book, <a href="http://www.amazon.com/Po-Beyond-Edward-De-Bono/dp/0140137823">Po: Beyond Yes and No</a>, appears to be out of print, but can be purchased used.<a title="Return to article" href="#debono">↩</a></p>
 </li>
 
 </ol>
