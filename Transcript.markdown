@@ -144,7 +144,7 @@ Sorry, my mind was wondering. I'm getting into the open mode too quickly. Instea
 
 ### First: Space (13:20)
 
-Let's take *space* first: you can't become playful and therefore creative if you're under your usual pressures, because to cope with them you've got to be in the closed mode.
+Let's take *space* first: you can't become playful, and therefore creative, if you're under your usual pressures, because to cope with them you've got to be in the closed mode.
 
 So you have to create some space for yourself *away* from those demands. And that means sealing yourself off.
 
