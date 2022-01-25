@@ -264,7 +264,7 @@ Space, time, time, confidence, and Lord Jeffrey Archer.
 
 ### Gently Round The Subject (25:55)
 
-So, now you know how to get into the open mode, the only other requirement is that you keep mind gently 'round the subject you're pondering.
+So, now you know how to get into the open mode, the only other requirement is that you keep your mind gently 'round the subject you're pondering.
 
 You'll daydream, of course, but you just keep bringing your mind back, just like with meditation. Because, and this is the extraordinary thing about creativity, if you just keep your mind resting against the subject in a friendly but persistent way, sooner or later you will get a reward from your unconscious, probably in the shower later. Or at breakfast the next morning, but *suddenly* you are rewarded, out of the blue a new thought mysteriously appears.
 
