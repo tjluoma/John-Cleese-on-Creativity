@@ -56,7 +56,7 @@ Let me explain a little. By the "closed mode" I mean the mode that we are in *mo
 
 We have inside us a feeling that there's lots to be done and we have to get on with it if we're going to get through it all.
 
-It's an active (probably *slightly* anxious) mode, although the anxiety can be exiting and pleasurable.
+It's an active (probably *slightly* anxious) mode, although the anxiety can be exciting and pleasurable.
 
 It's a mode which we're probably a little impatient, if only with ourselves.
 
