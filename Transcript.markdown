@@ -76,7 +76,7 @@ Let me give you an example of what I mean.
 
 When Alexander Fleming<sup id="Fleming"><a href="#fn-5">5</a></sup> had the thought that led to the discovery of penicillin, he must have been in the *open mode*.
 
-The previous day, he'd arranged a number of dishes to that culture would grow upon them.
+The previous day, he'd arranged a number of dishes so that culture would grow upon them.
 
 On the day in question, he glanced at the dishes, and he discovered that on one of them *no culture had appeared*.
 
