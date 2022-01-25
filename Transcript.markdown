@@ -400,9 +400,7 @@ More information can be found at <a href="http://www.brianbates.co.uk/">www.bria
 </li>
 
 <li id="fn-7">
-<p>
-
-<a href=’https://en.wikipedia.org/wiki/Edward_de_Bono’>Edward de Bono (19 May 1933 – 9 June 2021)</a>. More information at <a href="https://www.debono.com">debono.com</a>. The book, <a href="http://www.amazon.com/Po-Beyond-Edward-De-Bono/dp/0140137823">Po: Beyond Yes and No</a>, appears to be out of print, but can be purchased used.<a title="Return to article" href="#debono">↩</a></p>
+<p><a href='https://en.wikipedia.org/wiki/Edward_de_Bono'>Edward de Bono (19 May 1933 – 9 June 2021)</a>. More information at <a href="https://www.debono.com">debono.com</a>. The book, <a href="http://www.amazon.com/Po-Beyond-Edward-De-Bono/dp/0140137823">Po: Beyond Yes and No</a>, appears to be out of print, but can be purchased used.<a title="Return to article" href="#debono">↩</a></p>
 </li>
 
 </ol>
