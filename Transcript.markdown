@@ -322,7 +322,7 @@ So as you play you can deliberately try inventing these random juxtapositions, a
 
 And, of course, you'll produce some juxtapositions which are absolutely ridiculous, absurd. Good for you!
 
-Because Edward de Bono<sup id="debono"><a href="#fn-7">7</a></sup> (who invented the notion of lateral thinking) specifically suggests in his book _PO: Beyond Yes and No_ that you can try loosening up your assumptions by playing with *deliberately* crazy connections. He calls such absurd ideas "Intermediate Impossibles."
+Because Edward de Bono<sup id="debono"><a href="#fn-7">7</a></sup> (who invented the notion of lateral thinking) specifically suggests in his book _Po: Beyond Yes and No_ that you can try loosening up your assumptions by playing with *deliberately* crazy connections. He calls such absurd ideas "Intermediate Impossibles."
 
 And he points out the use of an Intermediate Impossible is completely contrary to ordinary logical thinking in which you have to be right at each stage.
 
