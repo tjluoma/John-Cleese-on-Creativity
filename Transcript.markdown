@@ -242,7 +242,7 @@ And now, the last factor, the fifth: humor.
 
 Well, I happen to think the main evolutionary significance of humor is that it gets us from the *closed mode* to the *open mode* quicker than anything else.
 
-I think we all know that laughter brings relaxation, and that humor makes us playful, yet how many times important discussions been held where really original and creative ideas were desperately needed to solve important problems, but where humor was taboo because the subject being discussed was *{air quotes}* "so serious"?
+I think we all know that laughter brings relaxation, and that humor makes us playful, yet how many times have important discussions been held where really original and creative ideas were desperately needed to solve important problems, but where humor was taboo because the subject being discussed was *{air quotes}* "so serious"?
 
 This attitude seems to me to stem from a very basic misunderstanding of the difference between 'serious' and 'solemn'.
 
