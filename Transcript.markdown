@@ -132,7 +132,7 @@ Bupkis.
 
 Not a sausage.
 
-Nevertheless I can at least tell you how to get yourselves into the open mode. You need five things:
+Nevertheless, I can at least tell you how to get yourselves into the open mode. You need five things:
 
 1. Space
 2. Time
